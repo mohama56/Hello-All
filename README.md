@@ -13,7 +13,7 @@
 🤝 I love connecting with people to explore growth opportunities and collaborate on impactful projects.
 
 
-📫 Let’s connect: [LinkedIn]([https://linkedin.com/in/your-profile](https://www.linkedin.com/in/alamin-mohammed/)
+📫 Let’s connect: [LinkedIn](https://www.linkedin.com/in/alamin-mohammed/)
 
 
 ⚡ Fun fact: I love to work on cars. Particularly, modifying them!
